@@ -8,4 +8,4 @@ Creating a new branch is quick and simple.
 WTF????
 This is not science.
 By the way, Fuck U.
-I don't know what am I saying.
+I don't know who am I.
